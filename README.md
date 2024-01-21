@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @GokuKrish24
+- 👀 I’m interested in web development and cloud technologies
+- 🌱 I’m currently learning web development
+- 💞️ I’m looking to collaborate on web development and cloud based projects where I can gain experience
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am quite funny but sincere at work
